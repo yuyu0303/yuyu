@@ -1,1 +1,2 @@
-# yuyu
+
+Berryz�H�[�i�D����
